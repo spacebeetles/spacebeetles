@@ -13,4 +13,4 @@
 </div>
 
 
-<p align="center"> on break until may 1st , i need to actually focus on my life more ! ily all ^u^
+<p align="center"> on break until may 1st , i need to actually focus on my life more , it was a really hard decision to make , but im doing it for the sake of my mental health ! ! ily all ^u^
