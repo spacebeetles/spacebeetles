@@ -1,8 +1,13 @@
+## <img width="2000" height="200" alt="C0B8FAFE-51D2-4E4D-9677-42B32B0880EB" src="https://github.com/user-attachments/assets/d69a7aad-aaf8-4f97-bf90-6db57f746060" />
+<img width="400" height="45" alt="IMG_2947" src="https://github.com/user-attachments/assets/fe0925d8-d6e5-4da5-be71-9afaf7aef2d8" />
+
+
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=ttisha&label=&color=F3642F" alt="ttisha" />
+  <img src="https://komarev.com/ghpvc/?username=ttisha&label=☘️&color=FF459F" alt="ttisha" />
 </p>
 
-<img width="1080" height="1078" alt="Untitled418_20260410172323" src="https://github.com/user-attachments/assets/4c9f5b98-bab3-4466-9f0a-5be560da218e" />
+<img width="1200" height="1087" alt="Untitled430_20260416201940" src="https://github.com/user-attachments/assets/033f4bcd-38fe-490c-849d-5b98e5647e0e" />
+
 
 
 <div align=“center”>
@@ -13,4 +18,4 @@
 </div>
 
 
-<p align="center"> on break until may 1st , i need to actually focus on my life more , it was a really hard decision to make , but im doing it for the sake of my mental health ! ! ily all ^u^
+<p align="center"> ON BREAK TILL MAY 1ST 
