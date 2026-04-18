@@ -18,4 +18,4 @@
 </div>
 
 
-<p align="center"> ON BREAK TILL MAY 1ST 
+<p align="center"> ON BREAK TILL MAY 3RD OR 10TH.
