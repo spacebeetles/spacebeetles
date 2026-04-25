@@ -186,9 +186,11 @@ i am a survivor of emotional abuse and sa . i will get flashbacks and go non ver
 uhmmmm im semi verbal at most times unless youre like my friend OR bf
 i am very dry and rude at first , but once i get to know you well ill b more talkative ^u^
 iwec and care at all times im sensitive affffff
-pleaseeee please int wigh me im lonely most of the time :—(
+pleaseeeeu please int wigh me im lonely most of the time :—(
 i have realllyyy shaky hands so i will misspell shit but pleeaaSEE don’t make fun of me for it unless youre my friend ;(
-ok das all bye
+im a tree yumeshipper ,doubles kindly dni
+   ok das all bye
+
 
 </p>
 </details>
