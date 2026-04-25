@@ -195,7 +195,13 @@ ok das all bye
  </div>
  
 ##  
+## $$\color{#FFF7CD}\text{links}$$
+<div align="center">
+  
+[新book](https://nineinteger.atabook.org)&nbsp;[prns.cc](https://pronouns.cc/@Nine)
+[guns.lol](https://guns.lol/treepilled)
 
+</div>
 
 
 
