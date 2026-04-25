@@ -68,7 +68,7 @@ this user is . .
  <summary>$${\color{FDC741} ᨳ}$$</summary></summary>
  <p>
 blinkie / stamp stash ^_^
-   sum of deez r kinda huge , sorry :--(
+   
  
    
    <img width="150" height="20" alt="IMG_2973" src="https://github.com/user-attachments/assets/89dc2126-5933-4866-9367-c67664e0cfb9" />
