@@ -22,6 +22,9 @@
 <img width="958" height="714" alt="IMG_4530" src="https://github.com/user-attachments/assets/d73bbd20-5313-49b2-a0de-d060440c85ab" />
 
 <p align="center"> <sub>art above is not mine. credits to og artist</sub>
+<div align="center">
+  <img width="20" height="20" alt="IMG_4716" src="https://github.com/user-attachments/assets/b26e0144-5c97-4320-b433-790b90e65076" />
+<img width="20" height="20" alt="IMG_4717" src="https://github.com/user-attachments/assets/ab0c2a49-f449-4994-b932-a907d177c1d4" />
 
 $\color{#A7CB66}{\text{alex ou leafy}}$
 $\color{#A7CB66}{\text{transgender and bisexual , taken < 3}}$
