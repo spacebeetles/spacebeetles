@@ -5,7 +5,10 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&weight=100&size=16&duration=2000&pause=1000&color=A7CB66&center=true&width=435&lines=%E4%B8%8D%E5%B9%B8%E3%81%AA+GIRL%2C;%E4%B8%8D%E5%B9%B8%E3%81%AA+GIRL;IF+YOU+WANNA+FLAY+ME%2C+LETS+SEE+WHATS+INSIDE.;%E4%B8%8D%E5%B9%B8%E3%81%AA+GIRL%2C;%E4%B8%8D%E5%B9%B8%E3%81%AA+GIRL%2C;AH%2C+AH;%E2%80%98CAUSE+PRETTY+GIRLS+CAN+NEVER+DIE)](https://git.io/typing-svg)
 <div align="center">
-<img width="457" height="37" alt="IMG_4257" src="https://github.com/user-attachments/assets/463ca190-ce63-4c8c-8da7-83db138b9bed" />
+<img width="225" height="43" alt="IMG_4759" src="https://github.com/user-attachments/assets/a515fd90-106d-4609-9cf4-ee0972e0a33a" />
+
+<div align="center">
+<img width="20" height="20" alt="IMG_4760" src="https://github.com/user-attachments/assets/25e6c9e7-1b1a-47bf-8d70-a58d4f135976" />
 
 
 
